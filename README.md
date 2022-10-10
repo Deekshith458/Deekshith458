@@ -12,5 +12,6 @@
 
 📫 Socials
  - 📧 [bathinideekshith458@gmail.com](mailto:bathinideekshith458@gmail.com)
- - 💼 LinkedIn
- - 📸 Instagram
+ - 💼 [LinkedIn](https://www.linkedin.com/in/deekshith458/)
+ - 📸 [Instagram](https://www.instagram.com/deekshith_bittu9/)
+ - 🐦 [Twitter](https://twitter.com/DEEKSHITH_1407)
