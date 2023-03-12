@@ -1,6 +1,6 @@
 Hello world! 👋 
 
-I'm is Deekshith Bathini
+I'm Deekshith Bathini
 ==================================
 
 Aspiring Data Engineer
